@@ -1,0 +1,1 @@
+# s6m1n.github.io
